@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @0xmoiz
 - 👀 I’m interested in Security stuffs
 - 🌱 I’m currently learning cyber security
-- 📫 How to reach me @techrelated521@gmail.com
+- 📫 How to reach me @moizbookwala31@gmail.com
   
 
 <!---
